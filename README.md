@@ -1,1 +1,1 @@
-# paint-github-cdb51
+# [paint github](https://paintgithub.com/)
